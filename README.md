@@ -1,1 +1,7 @@
-# im-going-to-destroy-this-country
+# I’m Going to Destroy this Country
+Il était une fois le redoutable Roi Squelette, un être qui s’avérait gênant même aux yeux des dieux.
+Si tu fais le travail à notre place, nous te transformerons en humain.» Mais les dieux m’ont piégé avec un contrat frauduleux et m’ont scellé. «Le Roi Squelette éliminé, débarrassons le monde des démons.»
+«La purge des démons et la diffusion de la bonne parole, confions tout ça à notre précieux .» «Quant à l’insolent Roi Squelette… Emprisonnons-le dans le corps d’un insecte et torturons-le pour l’éternité.»
+Mon histoire aurait dû s’arrêter là. «Oh mon Dieu, votre Sainteté. Vous êtes enfin réveillé ?» Au lieu de ça, je suis devenu le Saint ? Et non seulement ça, mais le fils d’un duc du Saint Empire – l’empire même qui entretient les dieux ? Alors si je fais tomber cette nation… Les dieux ne tomberont-ils pas avec elle ?
+«Oh, chéri, pourquoi notre jeune Saint est-il de si bonne humeur ?» «Votre Sainteté, voici un jouet qui a appartenu à ce misérable Roi Squelette.
+Aimeriez-vous le casser ?» «Les puissants dieux avaient récupéré tout ce que ce qui appartenait à ce roi arrogant sous prétexte d’avoir osé les défier.» Je détruirai ce pays… Saignons les dieux à blanc et effaçons le principe même de leur existence.
